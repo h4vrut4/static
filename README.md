@@ -1,0 +1,2 @@
+# static
+for DREAMHACK CSP BYPASS ADVANCED
